@@ -1,5 +1,5 @@
 # 💫 About Me:
-My name is Shubham Bhardwaj, an aspiring Cyber Security Professional from India, Currently Pursuing my Bachelors in Computer Science and Engineering from Lovely Professional University, India
+My name is Shubham Bhardwaj, an aspiring Cyber Security Professional from India, currently Pursuing my Bachelors in Computer Science and Engineering from Lovely Professional University, India
 
 
 ## 🌐 Socials:
